@@ -1,0 +1,2 @@
+# wort67
+Takipçi 
